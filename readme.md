@@ -5,3 +5,6 @@ dmwkdnowqdk
 dwkndwod
 mdkwomdokwmqdo
 dwpdmqwpmd
+dwmkdkwd
+dwldlw,d
+dwl,dw'
